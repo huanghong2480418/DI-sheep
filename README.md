@@ -18,9 +18,17 @@ https://huanghong2480418.github.io/EggDino
 
 https://huanghong2480418.github.io/yuanegg
 
-夏蛋坤KUROMi🐔🥚❤（测试阶段）：
+夏蛋坤KUROMi🐔🥚❤（测试）
 
 https://huanghong2480418.github.io/Kunball
+
+蔡徐坤打飞机🏀🐔❤（测试）
+
+https://huanghong2480418.github.io/Plane
+
+坤了个夏鸡蛋🐔🥚❤
+
+https://huanghong2480418.github.io/KLK
 
 ## 一🌸常见问题🌸一
 
